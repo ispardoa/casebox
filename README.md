@@ -11,6 +11,8 @@ If you are working with a human rights organisation, contact casebox at huridocs
 
 If your request is not related to human rights work and you are not a non-profit, then please contact Ketse at info at ketse.com for more information on the commercial services they can provide.
 
+For support of this version I can offer you for its operation and israel.pardo@gmail.com
+The hourly cost is $ 20.
 
 Code status
 -------------------------
